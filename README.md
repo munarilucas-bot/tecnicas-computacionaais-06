@@ -1,0 +1,1 @@
+# tecnicas-computacionaais-06
